@@ -4,4 +4,4 @@ JZ Center-Coin Manager
 
 First hand information of virtual currency,Share and exchange experience here
 
-Any comments or suggestions, please contact us: "JZ Center-Coin Manager" official email: tuoguxinzxc@icloud.com.
+Any comments or suggestions, please contact us: "JZ Center-Coin Manager" official email: zhangxinfei0909@icloud.com.
